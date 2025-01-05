@@ -1,2 +1,2 @@
 # meerabrahim
-Seo Master And HAcker
+Founder & CEO at Meer Group of Developers
